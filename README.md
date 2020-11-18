@@ -1,0 +1,3 @@
+English Scrambled Eggs
+None of my days start without a nice plate of Scrambled Eggs. They give you the perfect start for an active day.
+It is a wholesome and versatile dish. It can be eaten plain, with meat or with bread. It is also fairly easy to make consisting of only a few household ingredients. Making it is a piece of cake for even a child and can be instrumental in helping you reach your workplace in time with a full stomach. 
